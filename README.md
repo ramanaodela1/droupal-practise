@@ -1,1 +1,0 @@
-# droupal-practise
